@@ -1,1 +1,1 @@
-# classical
+# education summary page mockup
